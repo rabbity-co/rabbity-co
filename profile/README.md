@@ -13,4 +13,4 @@ time sabe escrever isso, conferir o que volta e decidir.
 
 **contato**
 
-[rabbity.co](https://rabbity.co) · sergio@rabbity.co
+[rabbity.co](https://rabbity.co) · [linkedin](https://www.linkedin.com/company/rabbity/) · [instagram](https://www.instagram.com/rabbity.co/) · sergio@rabbity.co
